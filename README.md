@@ -1,2 +1,0 @@
-# idealshan.github.io
-WEB
